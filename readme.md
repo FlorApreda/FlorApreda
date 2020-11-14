@@ -9,7 +9,7 @@ Aca se encuentran mis proyectos, y apuntes y ejercicios de las tecnologias que v
 
 ### Podes encontrarme.. 👀️
 
-- En [Linkedin](https://github.com/FlorApreda) 💜
+- En [Linkedin](https://www.linkedin.com/in/florapreda/) 💜
 - Ver mi [Portfolio]() 💜 (soon)
 
 ---
